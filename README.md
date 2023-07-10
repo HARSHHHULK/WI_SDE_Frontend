@@ -6,6 +6,8 @@ Website :
 
 ![image](https://github.com/HARSHHHULK/WorkIndia/assets/91682634/7184aefd-bb02-4d21-bce0-ef3819a93af3)
 
+![image](https://github.com/HARSHHHULK/WorkIndia/assets/91682634/d165f8e4-e17f-49a2-884e-ae31ece4b795)
+
 
 Website (slow/no internet connection) :
 
